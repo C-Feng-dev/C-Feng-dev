@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @C-Feng-dev
+- 📫 QQ Email:194732421@qq.com
+- 👀 I like to play Roblox and Minecraft
+- 🌱 I’m currently learning Lua
+- 😄 Pronouns: He/His
